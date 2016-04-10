@@ -1,2 +1,2 @@
 # wanna-be
-just for record my trail
+just for record my trail!!
